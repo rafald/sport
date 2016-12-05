@@ -21,6 +21,8 @@ The throw-like movement pattern can be applied to the volleyball spike. During t
  Ipsilateral rotation is the rotation of one side of the body over a fixed point: right handed volleyball players who rotate their bodies around an axis point on their left side.
  
 The forward and downward rotation of arm, creates an equal and opposite reaction through the legs. The legs have greater inertia, thus the movement of the legs is less noticeable therefore more force is required. This is known as angular momentum.
+Jak Stanley **rotowac prawe przedramie do dolu**!
+The rotation in his core, elbow below shoulder, left arm driving the right arm, centrated spine
 
 The Contact Phase
 -------------
