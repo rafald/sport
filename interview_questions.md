@@ -1,8 +1,0 @@
-Ideal working environment
----
-I think the modern workplace is so varied it's important to be capable of productivity in a diverse range of environments. I excel in an environment that has good communication and great teamwork, so therefore, that to me, would be the ideal working environment. The ideal job consists of a workplace where I can grow not only professionally but intellectually, where my own ideas are received as well as innovative ideas and knowledge acquired in the past. Where my knowledge and work is appreciated in terms of having an economic stability and security within the organization. The place irrespective of size contribute to each other in substantial amount, helps to grow each other, that is work place and the employee, understand each other in terms of professionalism, give enough space to individual motivation, and a healthy team work helps to dedicate potential is an ideal working place. 
-
-My office would be at home with windows to see outside and let plenty of sunshine in. I would have all the necessary equipment i.e.: computer, scanner, fax, IPhone and phone to do my job effectively. My schedule would be flexible and my work hours would be filled with productivity. I excel in an environment that has good communication skills and great teamwork but I enjoy working independently. My supervisor would be employee friendly with great communication skills and could coach and lead me to meet common and rewarding goals. It is a place where I can grow not only professionally but intellectually and where training and education is available to advance to the next level if so desired.
-
-
-> Written with [StackEdit](https://stackedit.io/).
